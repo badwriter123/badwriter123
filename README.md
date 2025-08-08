@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **rohanam2000@gmail.com**
 
-- ⚡ Fun fact **In an Insane World, it is the Sane who are called Crazy !!**
+- ⚡ Fun fact -> **In an Insane World, it is the Sane who are called Crazy !!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
